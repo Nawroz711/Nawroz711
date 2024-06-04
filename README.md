@@ -1,4 +1,4 @@
-## Hi there 👋 I am Nawroz Ali Alamdost
+## Hi, 👋 I am Nawroz Ali Alamdost
 ### The one who try to push for the world! 🌎
 
 
