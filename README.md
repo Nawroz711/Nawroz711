@@ -1,5 +1,5 @@
-# 💫 About Me:
-A passionate software developer from Afghanistan 
+# Hi, 👋 I am Nawroz Ali Alamdost
+## The one, who try to push for the world 🌎 
 
 
 ## 🌐 Socials:
