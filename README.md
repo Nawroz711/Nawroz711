@@ -1,5 +1,5 @@
-### Hi there 👋 I am Nawroz Ali Alamdost
-#### THE ONE WHO TRY TO PUSH FOR THE WORLD 🌎
+## Hi there 👋 I am Nawroz Ali Alamdost
+### The one who try to push for the world! 🌎
 
 
 <!--
