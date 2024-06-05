@@ -1,4 +1,4 @@
-# Hi, 👋 Iam Nawroz Ali Alamdost
+## Hi, 👋 Iam Nawroz Ali Alamdost
 The one, who try to push for the world 🌎 
 
 # 💻 Tech Stack:
